@@ -1,6 +1,6 @@
 # Microsoftbraindumps
 microsoft Role-based Fundamentals Specialty braindumps pdf
-https://www.lead4pass.com/microsoft.html
+https://www.leads4pass.com/microsoft.html
 
 Microsoft Specialty dumps pdf
 
